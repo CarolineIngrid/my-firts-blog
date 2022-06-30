@@ -1,4 +1,4 @@
-<img src="https://www.google.com/imgres?imgurl=https%3A%2F%2Fpbs.twimg.com%2Fmedia%2FE3dyCHWWYAIQTsF%3Fformat%3Djpg%26name%3D360x360&imgrefurl=https%3A%2F%2Fwww.tecmundo.com.br%2Fminha-serie%2F219109-miranda-cosgrove-recria-meme-computador-confira.htm&tbnid=9VvJ97kvezH_sM&vet=12ahUKEwie-NHh59X4AhUAvJUCHfVNDHMQMygAegUIARCnAQ.idocid=LiootnoypKnZBMw=360h=273q=icarly%20computadorved=2ahUKEwie-NHh59X4AhUAvJUCHfVNDHMQMygAegUIARCnAQ">
+<img src="https://www.google.com/imgres?imgurl=https%3A%2F%2Frollingstone.uol.com.br%2Fmedia%2Fuploads%2Fmiranda-cosgrove-meme-drake-and-josh-foto-reproducao-nickelodeon.jpg&imgrefurl=https%3A%2F%2Frollingstone.uol.com.br%2Fnoticia%2Fmiranda-cosgrove-recria-meme-de-drake-josh-em-revival-de-icarly-confira%2F&tbnid=hDyOjm_1wSelYM&vet=12ahUKEwia5ruw6NX4AhWvqJUCHT9ICgsQMygAegQIARA6..i&docid=2QUsDgnteJmFfM&w=1280&h=720&q=icarly%20computador&hl=pt-BR&ved=2ahUKEwia5ruw6NX4AhWvqJUCHT9ICgsQMygAegQIARA6">
 
 ### PARADO, VOCÊ ESTÁ PRESO POR SER TÃO INTELIGENTE 🚨
 
