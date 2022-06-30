@@ -1,4 +1,4 @@
-<img src="https://www.google.com/imgres?imgurl=https%3A%2F%2Frollingstone.uol.com.br%2Fmedia%2Fuploads%2Fmiranda-cosgrove-meme-drake-and-josh-foto-reproducao-nickelodeon.jpg&imgrefurl=https%3A%2F%2Frollingstone.uol.com.br%2Fnoticia%2Fmiranda-cosgrove-recria-meme-de-drake-josh-em-revival-de-icarly-confira%2F&tbnid=hDyOjm_1wSelYM&vet=12ahUKEwia5ruw6NX4AhWvqJUCHT9ICgsQMygAegQIARA6..i&docid=2QUsDgnteJmFfM&w=1280&h=720&q=icarly%20computador&hl=pt-BR&ved=2ahUKEwia5ruw6NX4AhWvqJUCHT9ICgsQMygAegQIARA6">
+<img src="https://pbs.twimg.com/media/E3dyCHWWYAIQTsF?format=jpg&name=360x360">
 
 ### PARADO, VOCÊ ESTÁ PRESO POR SER TÃO INTELIGENTE 🚨
 
