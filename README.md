@@ -5,7 +5,7 @@
 - Vou deixar aqui todas as anotações que faço durante as aulas e       cursos que me levaram a construir esse repo ❤️
 - Criei pasta django com o `mkdir` no `prompt` 
 
-- Dentro da pasta django `cd` criamos então a pasta d1olammundo
+- Entrei na pasta django com o famoso `cd` e então criamos a pasta d1olammundo
 
 
 ## Criando o Ambiente (virtualenv)
